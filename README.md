@@ -1,3 +1,3 @@
 # Verbier
 
-New Crypocurrency Project - Stay tuned http://verbiercoin.net
+New Cryptocurrency Project - Stay tuned http://verbiercoin.net
